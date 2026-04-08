@@ -32,4 +32,4 @@ I love the energy of high-intensity environments like hackathons. Working in tig
 ---
 
 ### 📫 Let's Talk Shop
-I’m always looking to connect with people working on **Local AI, Computer Vision, or Innovative UX.** [LinkedIn](your-link-here) | [Portfolio](your-link-here) | [Email](your-email-here)
+[LinkedIn](www.linkedin.com/in/ilamadhi-j-7958672a5) | [Email](ilamadhij@gmail.com)
